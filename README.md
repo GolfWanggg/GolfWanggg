@@ -1,4 +1,5 @@
 Gonna tint the dividers soon uh
+
 <a href="https://ibb.co/pwdJhc3"><img src="https://i.ibb.co/qjpkJKR/IMG-3580.png" alt="IMG-3580" border="0"></a>
 <a href="https://ibb.co/VJvdRvb"><img src="https://i.ibb.co/PF5RK5J/IMG-3578.png" alt="IMG-3578" border="0"></a>
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/vJhhqkz/IMG-3551.gif" alt="IMG-3551" border="0"></a> *heyhey im avery*
